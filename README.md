@@ -1,1 +1,1 @@
-# Laboratorio-de-Biomec-nica
+# Laboratorio-de-Biomecanica-Equipo 5
